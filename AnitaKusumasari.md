@@ -1,2 +1,4 @@
 AnitaKusumasari
 saifoelloh
+gebynab
+gagalputih
